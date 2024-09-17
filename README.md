@@ -1,1 +1,1 @@
-# Here are 2 projects related to the company "Yandex"
+# Here are 2 projects related to the company "Samolet"
